@@ -1,3 +1,3 @@
 # test-public
-✨​It's my first public repository on GitHub!✨🚀
+✨My name is Douaa and​ it's my first public repository on GitHub!✨🚀
 ​
